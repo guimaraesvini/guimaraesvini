@@ -4,7 +4,7 @@
 - 🌱 I’m currently Studying Web Development at [Cornestone College](https://ciccc.ca/)
 - 🇧🇷 I’m Brazilian and of course I love Soccer
 - 📫 How to reach me: niciusfg@gmail.com
-- ⚡ Fun fact: I Love traveling and I'm also a travel bloger [@vininomundo](https://www.instagram.com/vininomundo/)
+- ⚡ Fun fact: I Love traveling and I'm also a travel bloger [Blog](https://www.vininomundo.com) | [@vininomundo](https://www.instagram.com/vininomundo/)
 
 
 <div align="left">
